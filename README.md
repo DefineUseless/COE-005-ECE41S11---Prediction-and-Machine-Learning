@@ -32,5 +32,4 @@ Fair use is a use permitted by copyright statute that might otherwise be infring
 
 All rights and credit to its rightful owners. No copyright infringement intended.
 ```
-
 Enjoy.
